@@ -7,4 +7,4 @@ it is a protype , if u have any suggestion or u are having glithces DM!!!!!! me 
 
 
 
-the idea of the study tracker is taken by SUNIL SIR IN PW 
+the idea is taken from SUNIL SIR PW CHEM 
